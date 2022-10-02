@@ -1,3 +1,7 @@
 ### Hi 我是 EV 👋
 
-[![image-20221002221111778](C:\Users\3\AppData\Roaming\Typora\typora-user-images\image-20221002221111778.png] (https://www.zhihu.com/people/w-85-10)
+### 欢迎交流前端
+
+
+[![知乎 (2)](https://user-images.githubusercontent.com/113281531/193459125-c8af871a-b091-4b18-941a-0bcad8f77d44.png)
+](https://www.zhihu.com/people/w-85-10)
