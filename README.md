@@ -1,6 +1,6 @@
 ###  👋 Hi i'm Wiess
 
-![M5AE Q%6{$870_HCQ)HWOHW](https://user-images.githubusercontent.com/113281531/193459686-55433501-7916-4aee-b115-607413b13d31.gif)
+![bbed10967cd1618cb426c5eca28b8c4](https://user-images.githubusercontent.com/113281531/209775266-afc05373-5764-43b7-8502-c2a04b68bb65.jpg)
 
 
 ### 前端攻城狮    
