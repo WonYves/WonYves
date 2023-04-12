@@ -1,4 +1,4 @@
-###  👋 Hi i'm Wiess
+###  👋 Hi i'm Way
 
 ![bbed10967cd1618cb426c5eca28b8c4](https://user-images.githubusercontent.com/113281531/209775266-afc05373-5764-43b7-8502-c2a04b68bb65.jpg)
 
