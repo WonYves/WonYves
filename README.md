@@ -1,6 +1,7 @@
 ###  👋 Hi i'm Way
 
 ![9T$30)Y_KOGJAZ1)9FV0EB](https://user-images.githubusercontent.com/113281531/231388442-bccff862-cf6d-48c6-a065-3ddfa0a4ad58.png)
+！![~PW89BKUPW369$S1B2CBD2E](https://user-images.githubusercontent.com/113281531/235436766-ffcf2dd0-bb4d-4459-b4ea-95d6d5ecd87a.jpg)
 
 
 ### 前端攻城狮
